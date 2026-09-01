@@ -1,1 +1,0 @@
-# sda-assignment2-last-mile-delivery
